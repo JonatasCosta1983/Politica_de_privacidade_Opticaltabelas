@@ -1,4 +1,4 @@
-# Politica_de_privacidade_Opticaltabelas-
+# Politica_de_privacidade_Opticaltabelas
 Política de privacidade Política de Privacidade Optical tabelas criou o aplicativo Optical tabelas como aplicativo gratuito com anúncio. Este serviço é fornecido por https://www.jonatascosta.com/  sem nenhum custo e deve ser usado como está.  
 
 Esta página é usada para informar os visitantes sobre as políticas com a coleta, o uso e a divulgação de informações pessoais, se alguém decidir usar o Serviço. 
